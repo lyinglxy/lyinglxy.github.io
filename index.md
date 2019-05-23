@@ -1,3 +1,3 @@
-## Welcome to my(LYing) blog
+## Welcome to my blog
 
 
